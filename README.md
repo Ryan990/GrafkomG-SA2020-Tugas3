@@ -1,1 +1,2 @@
-# GrafkomG-SA2020_Tugas3
+Ryan R. Siematauw
+672018096
